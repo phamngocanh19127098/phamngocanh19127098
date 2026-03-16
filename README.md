@@ -56,6 +56,7 @@
 - 🐙 GitHub: https://github.com/phamngocanh19127098
 - 📫 Email: npham4533@gmail.com
 - 📍 Location: Ho Chi Minh City
+- 🎄 https://phamngocanh19127098.github.io/Resume/
 
 ---
 
